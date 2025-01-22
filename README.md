@@ -13,4 +13,4 @@
 </div>
 <div align="center">
 
-![Screenshot 2025-01-23 000015](https://github.com/user-attachments/assets/708ef8cc-2396-4a12-986a-f40c9e044a78)
+![image](https://github.com/user-attachments/assets/1437062c-a727-4ed0-8880-2024234f05b9)
